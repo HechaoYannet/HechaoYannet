@@ -1,4 +1,10 @@
-## Hi there 👋
+## Hi there 👋, Welcome!
+**Hello My LOVE!!!** 😘
+My name is **Hechao Yan** , a XJTUer!😆
+
+Yeah, I mean, I am from Xi'an Jiao Tong University/major in Artificial Intelligence.🤖
+
+Just contact me via yhcnet2021@163.com . **Ask me anything!** Even though you are just interested in Honkai:StarRail✨
 
 <!--
 **HechaoYannet/HechaoYannet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
